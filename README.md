@@ -1,0 +1,1 @@
+# labochka6
